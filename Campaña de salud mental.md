@@ -1,0 +1,2 @@
+- Hacer actividad recreativa
+	- Atacando la ansiedad 
